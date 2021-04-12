@@ -1,4 +1,4 @@
-### Reward up of  Rs. 50000 for donation of blood plasm for a noble cause 
+### Reward of  Rs. 50000 for donation of blood plasm for a noble cause 
 ### (Cure of critical corona patient)
 
 ### Eligibility & Terms: Donner should have had and recovered from Corona maximum with in last 3 months.
